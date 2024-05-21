@@ -1,1 +1,6 @@
 just learning git 
+
+
+
+
+llalaldsadlsada
